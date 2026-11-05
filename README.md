@@ -1,0 +1,1 @@
+# Trabalho_2-Fundamentos_de_redes_de_computadores-2026.2
